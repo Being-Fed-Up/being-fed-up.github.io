@@ -9,6 +9,7 @@ Being Fed Up is a podcast I began making during early 2020 as a platform to expr
 4. [Making The Effort](https://anchor.fm/beingfedup/episodes/Making-The-Effort-ebout4)
 5. [Mind Over Matter](https://anchor.fm/beingfedup/episodes/Mind-Over-Matter-or-Mind-over-Mind-ebrles)
 6. [Choice, Population Size, and Time](https://anchor.fm/beingfedup/episodes/Choice--Population-Size--and-Time-ecsn10)
+7. [I Can't Cook, Can You?](https://anchor.fm/beingfedup/episodes/I-Cant-Cook--Can-You-ee6ave)
 
 # Contact Information
  Feel free to email us at BeingFedUpPodcast@gmail.com
